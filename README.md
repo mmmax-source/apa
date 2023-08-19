@@ -1,4 +1,3 @@
-# apa
 ALL PARTS APART
 
       ___           ___       ___                                     
